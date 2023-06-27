@@ -1,1 +1,1 @@
-Doing hard things everyday
+Doing hard things eveyday
